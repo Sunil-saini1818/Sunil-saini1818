@@ -1,4 +1,4 @@
-# 💫 Hii!!e:
+# 💫 Hii!!:
 🔭 I’m currently working on machine learning<br>🤝 I’m looking for help with open source contribution<br>🌱 I’m currently building my fundamentals<br>
 
 
