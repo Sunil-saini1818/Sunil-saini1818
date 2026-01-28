@@ -1,5 +1,5 @@
 # 💫 Hii!!:
-🔭 I’m currently working on machine learning<br>🤝 I’m looking for help with open source contribution<br>🌱 I’m currently building my fundamentals<br>
+🔭 myself sunil saini. <br>🤝Btech CSE 2nd year student <br>🌱 intrest area: AI/ML/DATA SCIENTIST<br>
 
 
 ## 🌐 Socials:
